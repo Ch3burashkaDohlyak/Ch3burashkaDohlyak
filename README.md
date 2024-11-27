@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ch3burashkaDohlyak||||))
-- 👀 I’m interested in ..
-- 🌱 I’m currently learning ..
+- 👀 I’m interested in ..fdgvujfdgnbndu
+- 🌱 I’m currently learning ..rfgggde
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ..
