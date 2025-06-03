@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ch3burashkaDohlyak||||))
 - 👀 I’m interested in ..fyhrefwefdf
 - 🌱 I’m currently learning ..x,mjhfxtk
-- 💞️ I’m looking to collaborate on ...vxczdfsv
+- 💞️ I’m looking to collaborate on ...fcrddytfgh
 - 📫 How to reach me ...swaerdtfujhk
 - 😄 Pronouns: ..
 - ⚡ Fun fact: ..
